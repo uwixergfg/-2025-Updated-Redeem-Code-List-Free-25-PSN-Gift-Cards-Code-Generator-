@@ -4,10 +4,11 @@
 
 
 .
-🔴== GET 100$ PSN-GIFTS FREE HERE ==🔴
-.
+<a href="https://tinyurl.com/4ebe9we7">. 🔴== GET 100$ PSN-GIFTS FREE HERE ==🔴 .</a>
 
-🔴== CLICK HERE TO GENERATE PSN CODES ==🔴
+<a href="https://tinyurl.com/4ebe9we7">. 🔴== GET 100$ PSN-GIFTS FREE HERE ==🔴 .</a>
+
+<a href="https://tinyurl.com/4ebe9we7">. 🔴== GET 100$ PSN-GIFTS FREE HERE ==🔴 .</a>
 .
 
 What are Free PSN Codes?
